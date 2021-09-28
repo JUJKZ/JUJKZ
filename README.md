@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning css Html and JS
 - 💞️ I’m looking to collaborate on discord servers :D
 - 📫 How to reach me 
-Discord:JUJKZ#9565
-email: filipo.jenej@gmail.com 
+-Discord:JUJKZ#9565
+-email: filipo.jenej@gmail.com 
 (acully I am not reading emails :D)
